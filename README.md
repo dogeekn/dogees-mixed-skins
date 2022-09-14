@@ -15,6 +15,10 @@
 # [-Tranquil Dogee-](https://drive.google.com/file/d/1tCInj4lA8yQyPSmVXArIaIqGrEc1-f5s/view?usp=sharing)
 ![screenshot193](https://user-images.githubusercontent.com/112997832/188780618-694d4939-a680-454f-b1f3-117b0e26c1ee.jpg)
 
+# [---Kurumix ! dogee ver---](https://drive.google.com/file/d/19AnmL8kAe7w9uitEj8_bM3cJcznLvUuz/view?usp=sharing)
+![screenshot197](https://user-images.githubusercontent.com/112997832/190042275-c3c4dec6-430a-43f9-81cb-40e9e05a991d.jpg)
+
+
 
 
 
