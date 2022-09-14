@@ -1,5 +1,6 @@
 # dogee-mixed-skins
 just some skins i have mixed
+[Google drive folder with all the skins](https://drive.google.com/drive/u/0/folders/1Qv1kygiJ8nunFPwrxINNoAYWKZ9oARvN)
 
 # [Tokoyami Towa [常闇トワ] 2.0 (dogee ver)](https://drive.google.com/file/d/1ZlFAAkpGv-OlftdfGisrZHfy10_P1oM1/view?usp=sharing)
 ![screenshot195](https://user-images.githubusercontent.com/112997832/188782354-2cabf8d3-a884-4623-a4b4-7af845f15722.jpg)
