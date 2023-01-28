@@ -2,7 +2,7 @@
 just some skins i have mixed (in no particular order)
 
 # [- dogee varv](https://drive.google.com/drive/u/0/folders/1bKTdKv4vqT6WWbCmGkYiOevelmnKDCDx)
-![screenshot200](https://user-images.githubusercontent.com/112997832/215294681-aff081ae-a9a8-40e3-8ad0-ab936e146f06.jpg)
+![screenshot206](https://user-images.githubusercontent.com/112997832/215294963-54c35f0d-ece0-48c0-bb51-12a0948ac154.jpg)
 
 # [Tokoyami Towa [常闇トワ] 2.0 (dogee ver)](https://drive.google.com/file/d/1ZlFAAkpGv-OlftdfGisrZHfy10_P1oM1/view?usp=sharing)
 ![screenshot195](https://user-images.githubusercontent.com/112997832/188782354-2cabf8d3-a884-4623-a4b4-7af845f15722.jpg)
