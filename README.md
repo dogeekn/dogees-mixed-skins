@@ -1,6 +1,9 @@
 # dogee-mixed-skins
 just some skins i have mixed (in no particular order)
 
+# [dogeerino(whypan-azerino2 edit)](https://drive.google.com/file/d/15LJ6rwjtQewAIM4CPaXdtNAVXkbJD32o/view?usp=sharing)
+![screenshot221](https://user-images.githubusercontent.com/112997832/228575405-c5ac2d11-5645-4210-b46c-3ec22d7562a1.jpg)
+
 # [- dogee varv](https://drive.google.com/drive/u/0/folders/1bKTdKv4vqT6WWbCmGkYiOevelmnKDCDx)
 ![screenshot206](https://user-images.githubusercontent.com/112997832/215294963-54c35f0d-ece0-48c0-bb51-12a0948ac154.jpg)
 
@@ -23,7 +26,7 @@ just some skins i have mixed (in no particular order)
 ![screenshot197](https://user-images.githubusercontent.com/112997832/190042275-c3c4dec6-430a-43f9-81cb-40e9e05a991d.jpg)
 
 
-
+[google drive](https://drive.google.com/drive/u/0/folders/1Qv1kygiJ8nunFPwrxINNoAYWKZ9oARvN)
 
 
 
