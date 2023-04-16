@@ -1,6 +1,9 @@
 # dogee-mixed-skins
 just some skins i have mixed (in no particular order)
 
+# [Denying's Hakos Baelz - dogee edit](https://drive.google.com/file/d/1JdXN7eoeRBJeb7gpG-uNDNLTr7k9jMZX/view?usp=sharing)
+![screenshot224](https://user-images.githubusercontent.com/112997832/232315160-d8cba1f7-05ee-48bc-a3db-34b39a28aa2c.jpg)
+
 # [dogeerino(whypan-azerino2 edit)](https://drive.google.com/file/d/15LJ6rwjtQewAIM4CPaXdtNAVXkbJD32o/view?usp=sharing)
 ![screenshot221](https://user-images.githubusercontent.com/112997832/228575405-c5ac2d11-5645-4210-b46c-3ec22d7562a1.jpg)
 
