@@ -1,6 +1,9 @@
 # dogee-mixed-skins
 just some skins i have mixed (in no particular order)
 
+# [Lugia dogee](https://drive.google.com/file/d/1JCNtCzchfNeuh_98vMD00-VRD-6YdmGI/view?usp=sharing)
+![screenshot235](https://github.com/dogeekn/dogees-mixed-skins/assets/112997832/03047f30-a481-429e-ad9a-b1c2baf37c22)
+
 # [Denying's Hakos Baelz - dogee edit](https://drive.google.com/file/d/1JdXN7eoeRBJeb7gpG-uNDNLTr7k9jMZX/view?usp=sharing)
 ![screenshot224](https://user-images.githubusercontent.com/112997832/232315160-d8cba1f7-05ee-48bc-a3db-34b39a28aa2c.jpg)
 
