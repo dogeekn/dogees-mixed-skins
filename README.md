@@ -1,7 +1,8 @@
 # dogee-mixed-skins
 just some skins i have mixed (in no particular order)
 
-# [- Kozakura Marry](https://drive.google.com/file/d/1gzrAQcERRTRnSnaY6cHmHTxY4AjkH24J/view?usp=sharing)
+# [- Kozakura Marry](https://drive.google.com/file/d/1xaSDWmzOAGIWLCuwI8BK4mM7xQh1veej/view?usp=sharing)
+A slightly refreshed version of one of my first mixed skins. different cursor and hitsounds in skin folder.
 ![screenshot237](https://github.com/dogeekn/dogees-mixed-skins/assets/112997832/1add1487-881d-4b70-9d3b-b8316fcdc9f7)
 
 # [Lugia dogee](https://drive.google.com/file/d/1JCNtCzchfNeuh_98vMD00-VRD-6YdmGI/view?usp=sharing)
