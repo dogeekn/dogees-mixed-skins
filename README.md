@@ -1,5 +1,7 @@
 # dogee-mixed-skins
 just some skins i have mixed (in no particular order)
+[google drive](https://drive.google.com/drive/u/0/folders/1Qv1kygiJ8nunFPwrxINNoAYWKZ9oARvN)
+
 
 # [dinglekito - dogees edited edit](https://drive.google.com/file/d/1uxVArSwfMB4dPr4yUx1198-g6SKp-7Hv/view?usp=sharing)
 ![screenshot246](https://github.com/dogeekn/dogees-mixed-skins/assets/112997832/b28157e8-eeb7-47bc-b8ec-3da23a36fa0b)
@@ -38,10 +40,18 @@ A slightly refreshed version of one of my first mixed skins. different cursor an
 # [---Kurumix ! dogee ver---](https://drive.google.com/file/d/19AnmL8kAe7w9uitEj8_bM3cJcznLvUuz/view?usp=sharing)
 ![screenshot197](https://user-images.githubusercontent.com/112997832/190042275-c3c4dec6-430a-43f9-81cb-40e9e05a991d.jpg)
 
+# other skins i like
 
-[google drive](https://drive.google.com/drive/u/0/folders/1Qv1kygiJ8nunFPwrxINNoAYWKZ9oARvN)
+# [Sunflower Vol.1](https://drive.google.com/file/d/13jbtWIrWpHRgWrZmuFyltu8QrATxdswJ/view?usp=sharing)
+![screenshot252](https://github.com/user-attachments/assets/47d820d5-4c73-478a-877c-96dae257f5cc)
 
+# [ign](https://drive.google.com/file/d/1_Mtg17ank6ggwAiab6LKRWCNaNe-yaV0/view?usp=sharing)
+![screenshot253](https://github.com/user-attachments/assets/62daac29-a5a6-4b12-a0f7-f558c9d31a65)
 
+# EXTRAS
+
+# [literal osu cursor](https://drive.google.com/file/d/1LCSsmHMjBgt92pX_SQQ4YFHlXbHAo0nP/view?usp=sharing)
+![screenshot255](https://github.com/user-attachments/assets/f8135bd0-0099-43e3-be77-e1841f0a469b)
 
 
 
