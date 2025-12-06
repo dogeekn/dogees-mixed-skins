@@ -2,6 +2,9 @@
 just some skins i have mixed (in no particular order)
 [google drive](https://drive.google.com/drive/u/0/folders/1Qv1kygiJ8nunFPwrxINNoAYWKZ9oARvN)
 
+# [misu but white cursor](https://drive.google.com/file/d/1r99lJmYQZS5PjF7AwLLm39h8hVbk1gyO/view?usp=drive_link)
+![screenshot007](https://github.com/user-attachments/assets/7ab45a50-2879-4184-a551-d743b8b8c962)
+[original misu](https://skins.osuck.net/skins/4387)
 
 # [dinglekito - dogees edited edit](https://drive.google.com/file/d/1uxVArSwfMB4dPr4yUx1198-g6SKp-7Hv/view?usp=sharing)
 ![screenshot246](https://github.com/dogeekn/dogees-mixed-skins/assets/112997832/b28157e8-eeb7-47bc-b8ec-3da23a36fa0b)
